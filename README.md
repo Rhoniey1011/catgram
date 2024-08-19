@@ -1,7 +1,7 @@
 
 # CatGram Bot
 
-Register : https://t.me/catgram_play_bot/app?startapp=v4lv1BXuIT
+Register : https://t.me/catgram_play_bot/app?startapp=OUmT3piA6G
 
 PLEASE READ FIRST
 
